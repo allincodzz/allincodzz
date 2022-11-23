@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @allincodzz
 - 👀 My Website https://allincodzz.tk
-- 🌱 My Discord http://allincodzz.gq
+- 🌱 My Discord http://discord.allincodzz.gq
 - 💞️ My Gmail allincodzz@gmail.com
 - 📫 Search All In Codzz Development And subcribe
 
